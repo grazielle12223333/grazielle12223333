@@ -1,3 +1,3 @@
 oi meu none e grazielle
 🤡
-![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQRf5r0C5pQ8ZVXX1Atdg9r9TwwVXFJXAm5jQ&s)
+![](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExdmdna3dmeTg5emRoZW4wcmxrMXgxZXJpcGRzNXFlazkwZ3pzZjhjaSZlcD12MV9naWZzX3NlYXJjaCZjdD1n/T2d4uMzn7dzOVHcUHA/giphy.webp)
